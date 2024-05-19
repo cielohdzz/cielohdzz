@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **cielohdzz99@gmail.com**
 
-- ⚡ Fun fact **I´m learning Japanese**
+- ⚡ Fun fact **I´m learning Japanese (o゜▽゜)o☆**
 
 
 # 💻 Tech Stack:
